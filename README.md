@@ -97,6 +97,7 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 <img width="143" height="15" alt="7528b6eb_original" src="https://github.com/user-attachments/assets/db21f32d-0266-4804-8665-2978b3d34538" />
 </p>
 
+ <p align="center">
 
 <img width="99" height="56" alt="8047d772_original" src="https://github.com/user-attachments/assets/d2778255-71b2-496c-a49e-4e95d3796e6d" />
 <img width="99" height="56" alt="f28ab42a_original" src="https://github.com/user-attachments/assets/3c58ffce-c470-4ac2-8b2e-25523933dae8" />
@@ -110,7 +111,7 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 
 
 <img width="99" height="56" alt="77319c11_original" src="https://github.com/user-attachments/assets/e619bf41-0d28-4328-ba94-37efe4000eec" />
-
+</p>
 
 <p align="center">
   <img width="600" height="100" alt="892aa141976c92c14c803dd5f0f12413" src="https://github.com/user-attachments/assets/c405b57e-cdec-462c-9708-eae19174ab43" />
