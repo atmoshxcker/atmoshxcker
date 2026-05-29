@@ -45,29 +45,28 @@
 </p>
 
 <p align="center">
-Heyy theres a 90% chance that you are here from pony town lol so :
+Heyy hii theres a 90% chance that you are here from pony town lol so :
 </p>
 
 <p align="center">
-  I mostly dont check public chat so whispering to me is easier. Also sometimes im pretty bad at understanding intonation/ meaning in text messages so tone tags are apreciated. Expect grammar mistakes since english is my second language so i may mess up things 😓
+  I literally never check public chat so pls use whispers if u want me to reply. I may take a while to reply if im offtab, so yeah im not ignoring you i swear. I tend to reply really slowly even online too because i type so fast my sentences come out rlly misspelled so have to be constantly correcting stuff
 </p>
 
 <p align="center">
-D͟N͟I͟ : Wierd hoyoverse fans, problematic people or if you support them,  and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
+D͟N͟I͟ : Wierd hoyoverse fans, problematic people or if you support them,  and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or similar stuff its alr.
 </p>
 
 <p align="center">
-I͟N͟T͟ : Phighting, Umamusume, Honkai Star rail, Genshin Impact, Block Tales, Cookie Run, Deltarune, Undertale, Hello John Doe, Dandy's world, Searching for a world that doesn't exist.
+I͟N͟T͟ : Phighting, Umamusume, Honkai Star rail, Genshin Impact, Block Tales, Cookie Run, Deltarune, Undertale, Hello John Doe, Dandy's world, Searching for a world that doesn't exist... or some similar fandons :3
 </p>
 
 <p align="center">
-B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly stop replying I problaby don't know what to say. I may sound a bit dry sometimes but it's nothing personal I swear, I'm just quite bad at expressing myself. 
+B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather stay quiet than giving boring answers 🥲 thats just me what can i do
 </p>
 
 
-  
 <p align="center">
-     ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+  wow if u read this youre really cool have a good day / night ദ്ദി(˶ˆᗜˆ˵)
  </p>
 
 
