@@ -25,7 +25,7 @@
 </p>
 
 <p align="center">
-  ❝ Who knew it'd feel so good to be misunderstood? ❞
+  ❝ I promised you things that I didn’t mean, pushed you to the edge of insanity... ❞
 </p>
 
 
@@ -77,7 +77,9 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 <p align="center">
-  ❝ I think they see me as INFAMOUS!! ❞
+  ❝ ...I shook all the wrong hands
+at all the right times.
+Who did you expect me to be? ❞
 </p>
 
 
