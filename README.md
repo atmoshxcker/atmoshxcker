@@ -1,12 +1,17 @@
  <p align="center">
-<img width="462" height="34" alt="228cc920" src="https://github.com/user-attachments/assets/a51ed3d4-a3ac-4e4c-a132-5cd6038ba7d8" />
+
+<img width="191" height="11" alt="99d78f0a_original" src="https://github.com/user-attachments/assets/61b24355-d3a6-49a8-a4fc-20dcd86614ff" />
+<img width="20" height="20" alt="aed86a68" src="https://github.com/user-attachments/assets/4b6f6281-6c88-432d-a56a-f94f38878883" />
+<img width="191" height="11" alt="99d78f0a_original" src="https://github.com/user-attachments/assets/974c1cf2-e747-445a-a705-248156c1ad64" />
 
 
 </p>
+ 
+
   
 
 <p align="center">
-  🌐
+  🍟
 </p>
 
 <p align="center">
@@ -21,8 +26,8 @@
 
 
 <p align="center">
-<img width="180" height="180" alt="Sticker_PPG_26_Yao_Guang_03" src="https://github.com/user-attachments/assets/a8c99153-1232-4da7-b6a5-261815fa4c2c" />
 
+<img width="180" height="180" alt="ꪆৎ kasane teto_ synthesizer v ai nendoroid" src="https://github.com/user-attachments/assets/94d6423c-6cab-42c6-8d6b-59e9b2130b0c" />
 </p>
 
 <p align="center">
@@ -76,7 +81,9 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 </p>
 
 <p align="center">
-<img width="180" height="180" alt="Sticker_PPG_26_Yao_Guang_04" src="https://github.com/user-attachments/assets/37830cdb-955d-4c5a-a17e-0760a69cf975" />
+<img width="180" height="180" alt="147894109957daace12ad68231fefa6c" src="https://github.com/user-attachments/assets/b6ceb1b5-8b64-4d5b-a007-2247c4e56afa" />
+
+
 
 </p>
 
@@ -87,15 +94,15 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 
 
 <p align="center">
- ⋆.ೃ࿔<img width="20" height="20" alt="83b287bd" src="https://github.com/user-attachments/assets/5d5581ba-fae3-4c2e-8329-9df2e168c2e4" />*:･
+ ⋆.ೃ࿔<img width="20" height="20" alt="e95a5f8e" src="https://github.com/user-attachments/assets/f9dd34a5-f2ac-49b8-9826-06d2696e2654" />*:･
 </p>
 
 
 <p align="center">
-  🦴 
+  🍉 
 </p>
 
 
 
  <p align="center">
-<img width="462" height="34" alt="228cc920" src="https://github.com/user-attachments/assets/a51ed3d4-a3ac-4e4c-a132-5cd6038ba7d8" />
+<img width="143" height="15" alt="7528b6eb_original" src="https://github.com/user-attachments/assets/db21f32d-0266-4804-8665-2978b3d34538" />
