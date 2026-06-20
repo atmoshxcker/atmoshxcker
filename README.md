@@ -1,21 +1,7 @@
-<p align="center">
-<img width="600" height="200" alt="20cbf53c06188ea7041f41bf1707e346" src="https://github.com/user-attachments/assets/7c96a88e-40c6-4c29-802f-0e3a3bdf62f6" />
 
-</p>
-
- <p align="center">
-<img width="191" height="11" alt="99d78f0a_original" src="https://github.com/user-attachments/assets/61b24355-d3a6-49a8-a4fc-20dcd86614ff" />
-<img width="20" height="20" alt="aed86a68" src="https://github.com/user-attachments/assets/4b6f6281-6c88-432d-a56a-f94f38878883" />
-<img width="191" height="11" alt="99d78f0a_original" src="https://github.com/user-attachments/assets/974c1cf2-e747-445a-a705-248156c1ad64" />
-
-
-</p>
- 
-
-  
 
 <p align="center">
-  🍟
+  ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　💍　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
 </p>
 
 <p align="center">
@@ -31,18 +17,21 @@
 
 <p align="center">
 
-<img width="180" height="180" alt="ꪆৎ kasane teto_ synthesizer v ai nendoroid" src="https://github.com/user-attachments/assets/94d6423c-6cab-42c6-8d6b-59e9b2130b0c" />
-</p>
+<img width="380" height="340" alt="sad pathetic eggchan" src="https://github.com/user-attachments/assets/4991457c-b16d-41ab-9010-84d013754fa4" />
 
+
+<p align="center">
+  ❝ ...I shook all the wrong hands
+at all the right times.
+Who did you expect me to be? ❞
+</p>
 
 
 <p align="center">
 𑄝
 </p>
 
-<p align="center">
-<img width="1197" height="85" alt="56d20d5f57e7d56cbf49082f902dbdeb" src="https://github.com/user-attachments/assets/b7514b53-00cd-4148-bbf2-35bcc6533cf3" />
-</p>
+
 
 <p align="center">
 Heyy hii theres a 90% chance that you are here from pony town lol so :
@@ -57,7 +46,7 @@ D͟N͟I͟ : Wierd hoyoverse fans, problematic people or if you support them,  an
 </p>
 
 <p align="center">
-I͟N͟T͟ : Phighting, Umamusume, Honkai Star rail, Genshin Impact, Block Tales, Cookie Run, Deltarune, Undertale, Hello John Doe, Dandy's world, Searching for a world that doesn't exist... or some similar fandons :3
+I͟N͟T͟ : Phighting, Umamusume, Honkai Star rail, Genshin Impact, Block Tales, Cookie Run, Deltarune, Undertale, Hello John Doe, Dandy's world, Unstable smp, Searching for a world that doesn't exist... or some similar fandons :3
 </p>
 
 <p align="center">
@@ -71,49 +60,15 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 
-<p align="center">
-<img width="700" height="200" alt="872d595c6fa18c25a47b4ad78fafdc51" src="https://github.com/user-attachments/assets/10123f56-a8d7-42fa-95dc-d4978f5e1b93" />
-</p>
+
+
+
 
 
 <p align="center">
-  ❝ ...I shook all the wrong hands
-at all the right times.
-Who did you expect me to be? ❞
-</p>
-
-
-<p align="center">
- ⋆.ೃ࿔<img width="20" height="20" alt="e95a5f8e" src="https://github.com/user-attachments/assets/f9dd34a5-f2ac-49b8-9826-06d2696e2654" />*:･
-</p>
-
-
-<p align="center">
-  🍉 
+  🕸 
 </p>
 
 
 
- <p align="center">
-<img width="143" height="15" alt="7528b6eb_original" src="https://github.com/user-attachments/assets/db21f32d-0266-4804-8665-2978b3d34538" />
-</p>
-
- <p align="center">
-
-<img width="99" height="56" alt="8047d772_original" src="https://github.com/user-attachments/assets/d2778255-71b2-496c-a49e-4e95d3796e6d" />
-<img width="99" height="56" alt="f28ab42a_original" src="https://github.com/user-attachments/assets/3c58ffce-c470-4ac2-8b2e-25523933dae8" />
-
-
-<img width="99" height="56" alt="722a874e_original" src="https://github.com/user-attachments/assets/8fc0f492-c642-4359-af9e-aab1cd616bfc" />
-<img width="99" height="56" alt="ef39ffcf_original" src="https://github.com/user-attachments/assets/3c190913-29d3-4673-8bbf-8a4d43c71768" />
-
-<img width="99" height="56" alt="49aa447d_original" src="https://github.com/user-attachments/assets/e5bda972-f36a-4b73-ab02-8c33fd9fb0a5" />
-<img width="99" height="56" alt="ad2f6e74_original" src="https://github.com/user-attachments/assets/c6bae9eb-c186-47cf-93a6-7e99866fe2fb" />
-
-
-<img width="99" height="56" alt="77319c11_original" src="https://github.com/user-attachments/assets/e619bf41-0d28-4328-ba94-37efe4000eec" />
-</p>
-
-<p align="center">
-  <img width="600" height="100" alt="892aa141976c92c14c803dd5f0f12413" src="https://github.com/user-attachments/assets/c405b57e-cdec-462c-9708-eae19174ab43" />
-
+ 
