@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　💍　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
+  ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　☂　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
 </p>
 
 <p align="center">
@@ -17,7 +17,8 @@
 
 <p align="center">
 
-<img width="380" height="340" alt="sad pathetic eggchan" src="https://github.com/user-attachments/assets/4991457c-b16d-41ab-9010-84d013754fa4" />
+<img width="200" height="190" alt="WhatsApp Image 2026-07-02 at 21 41 58" src="https://github.com/user-attachments/assets/44d397c2-d4e0-4afa-a967-0edfbbcfe07d" />
+
 
 
 <p align="center">
