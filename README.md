@@ -47,7 +47,7 @@ D͟N͟I͟ : Wierd hoyoverse fans, problematic people or if you support them,  an
 </p>
 
 <p align="center">
-I͟N͟T͟ : Phighting, Umamusume, Honkai Star rail, Genshin Impact, Block Tales, Cookie Run, Deltarune, Undertale, Hello John Doe, Dandy's world, Unstable smp, Searching for a world that doesn't exist... or some similar fandons :3
+I͟N͟T͟ : Phighting, Umamusume, Honkai Star rail, Genshin Impact, Block Tales, Cookie Run, Deltarune, Undertale, Hello John Doe, Toons Universe, Unstable smp, Searching for a world that doesn't exist... or some similar fandons :3
 </p>
 
 <p align="center">
