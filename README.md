@@ -11,21 +11,16 @@
 </p>
 
 <p align="center">
-  ❝ I promised you things that I didn’t mean, pushed you to the edge of insanity... ❞
+  ❝ I won't wait, I'm feeling.
+My own way, I'm in it.
+'Cause me and you are diﬀerent.
+So I won't stay, I'm leaving!  ❞
 </p>
 
 
 <p align="center">
 
-<img width="200" height="190" alt="WhatsApp Image 2026-07-02 at 21 41 58" src="https://github.com/user-attachments/assets/44d397c2-d4e0-4afa-a967-0edfbbcfe07d" />
-
-
-
-<p align="center">
-  ❝ ...I shook all the wrong hands
-at all the right times.
-Who did you expect me to be? ❞
-</p>
+<img width="200" height="190" alt="blue whale cookie 🩶🩵🤍🩶🩵🤍🩶🩵🤍" src="https://github.com/user-attachments/assets/d3719dd1-a68b-4306-9295-b82a5d7469fa" />
 
 
 <p align="center">
