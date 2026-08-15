@@ -1,4 +1,6 @@
 
+<img width="1200" height="68" alt="Untitled design(1)" src="https://github.com/user-attachments/assets/845a0980-8120-46e9-924b-41a9a204f7d2" />
+
 
 <p align="center">
   ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　˖°⚜️　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
@@ -68,4 +70,5 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 
- 
+ <img width="1200" height="68" alt="Untitled design(2)" src="https://github.com/user-attachments/assets/fbed1a63-6d00-40fe-be2c-c3e6a5a0ccba" />
+
