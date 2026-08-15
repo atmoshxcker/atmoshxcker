@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　˖°🌊　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
+  ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　˖°⚜️　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
 </p>
 
 <p align="center">
@@ -11,16 +11,17 @@
 </p>
 
 <p align="center">
-  ❝ I won't wait, I'm feeling.
-My own way, I'm in it.
-'Cause me and you are diﬀerent.
-So I won't stay, I'm leaving!  ❞
+  ❝ I was dying for you,
+and you were dying for me.
+So cry havoc baby
+and set the monsters free  ❞
 </p>
 
 
 <p align="center">
 
-<img width="200" height="190" alt="blue whale cookie 🩶🩵🤍🩶🩵🤍🩶🩵🤍" src="https://github.com/user-attachments/assets/d3719dd1-a68b-4306-9295-b82a5d7469fa" />
+<img width="200" height="190" alt="Untitled design" src="https://github.com/user-attachments/assets/b48d6b50-a456-4413-98ea-7e181fc9fd79" />
+
 
 
 <p align="center">
@@ -62,7 +63,7 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 <p align="center">
-  🕸 
+  ♟️ 
 </p>
 
 
