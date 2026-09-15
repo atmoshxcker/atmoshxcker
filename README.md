@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　˖°⚜️　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
+  ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　˖°🧇　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
 </p>
 
 <p align="center">
@@ -13,16 +13,16 @@
 </p>
 
 <p align="center">
-  ❝ I was dying for you,
-and you were dying for me.
-So cry havoc baby
-and set the monsters free  ❞
+  ❝ Witness the will of the weak!  ❞
 </p>
 
 
 <p align="center">
 
-<img width="200" height="190" alt="Untitled design" src="https://github.com/user-attachments/assets/b48d6b50-a456-4413-98ea-7e181fc9fd79" />
+
+<img width="190" height="190" alt="e" src="https://github.com/user-attachments/assets/902e1a13-ec51-46f6-b182-7294dfa4cbb4" />
+
+
 
 
 
@@ -65,8 +65,13 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 <p align="center">
-  ♟️ 
+  🎨 
 </p>
+
+
+
+<p align="center">
+
 
 
 
