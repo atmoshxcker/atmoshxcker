@@ -1,9 +1,16 @@
 
-<img width="1200" height="68" alt="Untitled design(1)" src="https://github.com/user-attachments/assets/845a0980-8120-46e9-924b-41a9a204f7d2" />
+<img width="1500" height="333" alt="tumblr_90a2ba4ba680e7806b846bd4d65367ef_5013f961_2048" src="https://github.com/user-attachments/assets/28b15c0d-aaac-4997-b360-1179d732ee79" />
 
+<img width="3000" height="120" alt="bae1b898d0c783b256d9cf68e271aff21f4b30cd" src="https://github.com/user-attachments/assets/0ba95eb5-9ab2-4a3a-97ad-b930c43bd8f7" />
 
+⠀<p align="center">
+⠀⠀<img width="20" height="20" alt="ff4dfac3" src="https://github.com/user-attachments/assets/23d89da4-194e-4dcf-a498-400b690dec9b" />
+</p>
+⠀
+⠀
 <p align="center">
-  ⏤͟͟ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　˖°🧇　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
+⏤ ₕᵢₕᵢ ֶָ֢ᐟ      ⨾  　₍　˖°‼️　₎　﹒　🅽ᵧₙ　ₒᵣ 　🅽ᵧₙₓₒ　　🅂ₕₑ　╱　🄷ₑᵣ       .       ⓘⓝⓕⓟ
+
 </p>
 
 <p align="center">
@@ -17,17 +24,23 @@
 </p>
 
 
-<p align="center">
-
-
-<img width="190" height="190" alt="e" src="https://github.com/user-attachments/assets/902e1a13-ec51-46f6-b182-7294dfa4cbb4" />
-
-
 
 
 
 <p align="center">
-𑄝
+
+
+
+
+
+
+
+
+
+
+<p align="center">
+<img width="20" height="20" alt="438c9920" src="https://github.com/user-attachments/assets/d3e95bb9-6070-4008-9456-f3f17db3f420" />
+
 </p>
 
 
@@ -59,13 +72,14 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 
+<p align="center">
+this is not organized i knowwww i dont have time to do anything
 
-
-
-
+</p>
 
 <p align="center">
-  🎨 
+  <img width="20" height="20" alt="c4a53200" src="https://github.com/user-attachments/assets/3cf99825-9509-4bb4-b00a-afad33cc91db" />
+ 
 </p>
 
 
@@ -75,5 +89,11 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 
- <img width="1200" height="68" alt="Untitled design(2)" src="https://github.com/user-attachments/assets/fbed1a63-6d00-40fe-be2c-c3e6a5a0ccba" />
+<img width="96" height="56" alt="skatebword1" src="https://github.com/user-attachments/assets/22bd4572-abe5-47b2-ac5e-d97cfeaf9e00" />
+
+<img width="96" height="56" alt="tumblr_d818fc7a836d1e00a45565b2d992d6d2_e4c12ca4_640" src="https://github.com/user-attachments/assets/b9e9521e-6be6-479a-9859-213a872cda38" />
+
+<img width="96" height="56" alt="tumblr_5d06aa791b2854bf86f62b1ca3ec5dc4_5a607386_400" src="https://github.com/user-attachments/assets/dbe973c6-6069-488b-9ec5-61b722c71071" />
+
+
 
