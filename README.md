@@ -2,7 +2,7 @@
 <img width="1500" height="333" alt="tumblr_90a2ba4ba680e7806b846bd4d65367ef_5013f961_2048" src="https://github.com/user-attachments/assets/28b15c0d-aaac-4997-b360-1179d732ee79" />
 
 <img width="3000" height="120" alt="bae1b898d0c783b256d9cf68e271aff21f4b30cd" src="https://github.com/user-attachments/assets/0ba95eb5-9ab2-4a3a-97ad-b930c43bd8f7" />
-
+creds :: ink3d-layouts on tumblr
 ⠀<p align="center">
 ⠀⠀<img width="20" height="20" alt="ff4dfac3" src="https://github.com/user-attachments/assets/23d89da4-194e-4dcf-a498-400b690dec9b" />
 </p>
