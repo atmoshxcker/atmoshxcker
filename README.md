@@ -73,7 +73,7 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 <p align="center">
-this is not organized i knowwww i dont have time to do anything
+this is not organized i knowwww im just lazy alr dont throw tomatoes at me
 
 </p>
 
