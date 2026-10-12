@@ -79,7 +79,7 @@ this is not organized i knowwww im just lazy alr dont throw tomatoes at me
 </p>
 
 <p align="center">
-  <img width="100" height="70" alt="c4a53200" src="https://github.com/user-attachments/assets/3cf99825-9509-4bb4-b00a-afad33cc91db" />
+  <img width="20" height="20" alt="c4a53200" src="https://github.com/user-attachments/assets/3cf99825-9509-4bb4-b00a-afad33cc91db" />
  
 </p>
 
