@@ -54,7 +54,7 @@ Heyy hii theres a 90% chance that you are here from pony town lol so :
 </p>
 
 <p align="center">
-D͟N͟I͟ : Wierd hoyoverse fans, problematic people or if you support them,  and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or similar stuff its alr.
+D͟N͟I͟ : Wierd hoyoverse fans, problematic people or if you support their actions,  and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or similar stuff its alr.
 </p>
 
 <p align="center">
