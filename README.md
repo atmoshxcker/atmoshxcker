@@ -74,11 +74,12 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 <p align="center">
 this is not organized i knowwww im just lazy alr dont throw tomatoes at me
+<img width="50" height="50" alt="d58cbe9dffa7a8e6d4ee9f019a32aac8" src="https://github.com/user-attachments/assets/245cab57-7637-4fb9-bce0-673737efebe9" />
 
 </p>
 
 <p align="center">
-  <img width="20" height="20" alt="c4a53200" src="https://github.com/user-attachments/assets/3cf99825-9509-4bb4-b00a-afad33cc91db" />
+  <img width="100" height="70" alt="c4a53200" src="https://github.com/user-attachments/assets/3cf99825-9509-4bb4-b00a-afad33cc91db" />
  
 </p>
 
