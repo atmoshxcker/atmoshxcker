@@ -82,7 +82,6 @@ this is not organized i knowwww im just lazy alr dont throw tomatoes at me
   <img width="20" height="20" alt="c4a53200" src="https://github.com/user-attachments/assets/3cf99825-9509-4bb4-b00a-afad33cc91db" />
  
 </p>
-
 ⠀⠀
 <p align="center">
 
