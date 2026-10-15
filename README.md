@@ -20,7 +20,7 @@ creds :: ink3d-layouts on tumblr
 </p>
 
 <p align="center">
-  ❝ Witness the will of the weak!  ❞
+  ❝ Psycho Killer, qu'est-ce que c'est?  ❞
 </p>
 
 
