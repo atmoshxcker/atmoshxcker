@@ -96,5 +96,9 @@ this is not organized i knowwww im just lazy alr dont throw tomatoes at me
 
 <img width="96" height="56" alt="tumblr_5d06aa791b2854bf86f62b1ca3ec5dc4_5a607386_400" src="https://github.com/user-attachments/assets/dbe973c6-6069-488b-9ec5-61b722c71071" />
 
+<img width="96" height="56" alt="tumblr_a748b1740821dbe38646865426347405_8752751e_100" src="https://github.com/user-attachments/assets/d3c8649f-68a2-4d81-9c83-ad7a6277c3eb" />
 
+<img width="100" height="57" alt="tumblr_7592dd30c6ceaa0f628648f21357c2eb_57d33696_100" src="https://github.com/user-attachments/assets/58655abe-257b-4f9c-a5c3-096a01f4a15f" />
+
+<img width="99" height="56" alt="tumblr_1565b4f244c10f4fb0cb47d700ec2834_d3068cb5_100" src="https://github.com/user-attachments/assets/f374142d-09f3-40a0-bc9c-44008ff42dfa" />
 
