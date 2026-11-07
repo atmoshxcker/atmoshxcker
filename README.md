@@ -86,8 +86,10 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 ⠀⠀
 <p align="center">
 
+<img width="83" height="31" alt="tumblr_7f961d1aa128c3d8f12a9c92bcd44a57_3799000f_250" src="https://github.com/user-attachments/assets/e5300719-2eb8-402f-b53c-cfb43b889bda" />
+</p>
 
-
+<p align="center">
 
 <img width="96" height="56" alt="tumblr_a036fcf50ff59f57d84a8efa0e41b00e_ecc7d650_250" src="https://github.com/user-attachments/assets/3df15158-bd03-429d-b9f9-6592ef5e19c6" />
 
@@ -103,6 +105,7 @@ B͟Y͟I͟ : I easily run out of things to say sometimes and would just rather st
 
 
 <img width="96" height="56" alt="tumblr_cd6cb3987c87e6bbbe565373a3ee6163_4195043e_250" src="https://github.com/user-attachments/assets/781c1c8a-5cb5-400d-aff5-7b1bdf2032c8" />
+</p>
 
 
 
